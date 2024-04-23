@@ -4,5 +4,4 @@
 - 📫 you can always reach me on various platforms
 
 WHATSAAP +254791060498
-INSTAGRAM https://www.instagram.com/ropcollins1/
 
